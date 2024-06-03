@@ -13,4 +13,4 @@ luksmontalti@gmail.com
 @luksmontalti em todas as redes
 
 
-!(https://i.gifer.com/9JWf.gif)[]
+!()[https://i.gifer.com/9JWf.gif]
