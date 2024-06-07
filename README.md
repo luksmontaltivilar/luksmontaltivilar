@@ -9,8 +9,6 @@ Meu nome é Lucas Montalti Vilar
 
 ### Entre em contato comigo! (Se eu estiver com vontade)
 
-luksmontalti@gmail.com
+luksmontalti@gmail.com  
+
 @luksmontalti em todas as redes
-
-
-!(https://i.gifer.com/9JWf.gif)[]
